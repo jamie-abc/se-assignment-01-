@@ -2,7 +2,7 @@
 
 
 
-\*\*Student Name:\*\* Jamie 陈靖鑫
+\*\*Student Name:\*\* Jamie 
 
 
 
